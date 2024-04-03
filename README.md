@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cyber Security.
 - 🌱 I’m currently learning Kali Purple.
 - 💞️ I’m looking to collaborate on SOC Community.
-- 📫 How to reach me @sanjibpanday
+- 📫 How to reach me @sanjibmilon
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I am innocent 😀
 
